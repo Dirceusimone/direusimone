@@ -1,4 +1,4 @@
-**Direu**
+**Dirceu**
 *Professor*
 *Colégio Estadual Pe. Arnaldo Jansen.
 *Contato-dirceu.carmo@escola.pr.gov.br*
